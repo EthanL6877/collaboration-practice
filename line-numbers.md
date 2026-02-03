@@ -4,9 +4,9 @@
 #### 4
 #### 5 Franco aslo here !
 #### 6
-#### 7 Poo poo head 
+#### 7 Poo poo head
 #### 8
-#### 9
+#### 9 github is awesome
 #### 10
 #### 11
 #### 12
